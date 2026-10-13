@@ -2,7 +2,7 @@
 
 im wiltedsec and uhh idk im prob gonna have like 23 gaming repos here
 
-tbh all my repos suck don't touch them if you want to not go insane
+tbh all my repos suck don't touch them if you want to stay out of a mental hospital
 
 pronouns: any or they/them
 
