@@ -1,4 +1,6 @@
-## Hi there 👋
+## yo yo yo
+
+im wiltedsec, krownsec member/hicom and uhh idk im prob gonna have like 23 gaming repos here
 
 <!--
 **notwiltedsec/notwiltedsec** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
