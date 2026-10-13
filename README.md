@@ -5,8 +5,11 @@ im wiltedsec and uhh idk im prob gonna have like 23 gaming repos here
 tbh all my repos suck don't touch them if you want to not go insane
 
 pronouns: any or they/them
+
 working on: school stuff
+
 learning: game programming, next year is vr game programming 
+
 how to reach me: @wilted.pdf on discord or wilt3d@creep.gg
 -
 
